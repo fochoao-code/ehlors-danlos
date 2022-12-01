@@ -2,6 +2,6 @@
 
 Ehlors Danlos Treatment
 
-Aripriprazol, valproate and muscle relaxants.
+Aripriprazol, valproate and muscle relaxants. Acetilcholyne receptor intake.
 
 It cannot be cured, but treated.
